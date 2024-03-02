@@ -1,8 +1,9 @@
 # Darkweb
 The Hidden Wiki V3 <3
+
 THE BIGGEST DARK WEB LIBRARY IN THE HISTORY CHECK IT OUT !!!
 Recently ive been in the dark web for a bit and i was completly lost until i found this.
-The Complete and the Most Trusted sitw in the the Dark web History.
+The Complete and the Most Trusted site in the the Dark web History.
 Introducing the New Version of 
 "THE HIDDEN WIKI" with their new v3 Domain they are better
 Check here 
